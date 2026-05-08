@@ -34,7 +34,7 @@
 https://wa.me/967777818186
 
 👉 موقعنا على خرائط جوجل
-https://maps.app.goo.gl/zLKqcifoPiCAGhkFA
+https://maps.app.goo.gl/xu1yyHaY4HqCWndM8
 
 👉 الموقع الرسمي
 https://www.alamintravelvip.com
